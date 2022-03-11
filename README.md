@@ -1,5 +1,1 @@
--Sup, I’m @0smg (most people call to me es em gee , questioning for IRL )
--I’m interested in b-ball and minecraft speedrunning
--I’m currently a high school student
--I’m looking to collaborate on fun works and mc stuff
--Discord : 0smg#5493  he/him
+
